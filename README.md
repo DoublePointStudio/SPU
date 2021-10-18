@@ -25,10 +25,10 @@ Email: haniamasha@gmail.com
 Facebook: fb.com/drhani.amasha.3
 فريق العمل: 
 The Team:
- Ahssan ataiaإحسان عطايا   
+ Ehsan atayaإحسان عطايا   
 Email: ahssanataia@gmail.com
 Facebook: fb.com/ehssan.ataia
-  Hazem ackleحازم عقل
+  Hazem Ackleحازم عقل
 Email: hazemackle@gmail.com
 Facebook: fb.com/hazem.akel.9
  Tarek Al-Qentarطارق القنطار
